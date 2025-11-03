@@ -12,4 +12,6 @@ Heㅤwasn'tㅤcruelㅤ.ㅤHeㅤjustㅤwantedㅤtoㅤhelpㅤ.
 
 ...ㅤHeㅤdidn'tㅤtreatㅤmeㅤlikeㅤaㅤtoolㅤ.
 
+<img width="348" height="72" alt="cc7m7y" src="https://github.com/user-attachments/assets/4fd105bd-f881-4d62-b6a0-9172fd2afb0d" />
+
 </div>
