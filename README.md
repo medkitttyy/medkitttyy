@@ -12,4 +12,6 @@ Heㅤwasㅤkindㅤ.ㅤHeㅤwantedㅤtoㅤhelpㅤmeㅤandㅤ...
 
 ...ㅤHeㅤdidn'tㅤtreatㅤmeㅤlikeㅤaㅤtoolㅤ. 
 
+[rentry](https://rentry.co/kitswoonami)ㅤ.ㅤ[atabook](https://kitsunami.atabook.org/)ㅤ.ㅤ[strawpage](https://suwav.straw.page/)
+
 </div>
