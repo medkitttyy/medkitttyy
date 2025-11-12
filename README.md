@@ -20,6 +20,8 @@ Heㅤwasㅤkindㅤ.ㅤHeㅤwantedㅤtoㅤhelpㅤmeㅤandㅤ...
 
 idleㅤstatus:ㅤAFKㅤ/ㅤofftab
 
+busyㅤstatus:ㅤsleepingㅤ/ㅤdnd
+
 ![giphy](https://github.com/user-attachments/assets/c6a63eaf-9176-4ee9-9436-11c4b311b0f5)
 
 </div>
