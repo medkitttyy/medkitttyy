@@ -14,7 +14,7 @@ Heㅤwasㅤkindㅤ.ㅤHeㅤwantedㅤtoㅤhelpㅤmeㅤandㅤ...
 
 [rentry](https://rentry.co/kitswoonami)ㅤ.ㅤ[atabook](https://kitsunami.atabook.org/)ㅤ.ㅤ[strawpage](https://suwav.straw.page/)
 
-[pronouns page](https://en.pronouns.page/@kitsunamii)ㅤ.ㅤ[guns.lol](https://guns.lol/justbecompetent)
+[pronouns page](https://en.pronouns.page/@kitsunamii)ㅤ.ㅤ[guns.lol](https://guns.lol/justbecompetent) . [tree](https://colormytree.me/2025/01KBSHX88N0Q5J3VRJTC20G0E1)
 
 ---
 
